@@ -4,6 +4,9 @@
 
 > https://drive.google.com/drive/folders/1M_o99QOiuHYpwqPc6C1ZPslbNJjbPY8a
 > 
+> lidvas@gmail.com - 8 вопросов за семестр
+>
+> 2/3 практика + 1/3 семинары
 
 * Защита информации
 
